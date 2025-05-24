@@ -1,4 +1,4 @@
-![446959492-82b78ff6-20f3-4d16-ba9a-fca32172a193](https://github.com/user-attachments/assets/9ac6f8b9-59ab-4e1b-bf7e-2ff41f0b5994)### Tiva Admits to Using a RAT on an Innocent Individual
+### Tiva Admits to Using a RAT on an Innocent Individual
 Tiva openly admits to helping deploy a **Remote Access Trojan (RAT)** to steal files and take over someone’s device. He acknowledges guilt and refuses to speak further out of fear of being recorded.
 
 [https://github.com/user-attachments/assets/946a4eaa-24ff-4e96-9679-418e22dfd186](https://github.com/user-attachments/assets/6316273c-6c13-4026-8010-de6cf356230e)
