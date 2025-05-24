@@ -1,2 +1,15 @@
-# Solaris-Document
-Exposing illegal activity within the Solaris OG Fortnite private server.
+![Image](https://github.com/user-attachments/assets/72f5baa3-c299-49f6-8b17-eb30d31dbfea)
+> ### Solaris Document
+**Purpose:**
+This document covers serious issues caused by the **Solaris** group, an OG Fortnite community similar to Nova or Era. Solaris has been the source of hate, drama, and harmful behavior toward others. The OG Fortnite community was meant to be a space where people supported each other, but that changed because of their actions.
+
+**What This Covers:**
+* [x] **Doxxing** *(Sharing someone’s private information without permission.)*
+* [x] **Harassment** *(Constantly bothering, threatening, or targeting someone.)*
+* [x] **Sending unwanted deliveries** *(Intentionally sending food or items to someone’s home without their consent.)*
+* [x] **Racism & Hate speech** *(Saying or doing things that disrespect others for who they are.)*
+* [x] **Sexual misconduct** *(Inappropriate behavior or messages, especially toward minors.)*
+* [x] **Pedophilia** *(Extremely serious behavior involving minors that cannot be ignored.)*
+* [x] **Scamming** *(Providing promised content or perks to a donator, then later removing or revoking them without reason.)*
+
+> ***Note:*** People who were involved in these actions are named in this document. Some helpers who contributed asked to remain anonymous for their safety or peace of mind. Their names have been hidden and we fully respect their privacy.
