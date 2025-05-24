@@ -2,17 +2,17 @@
 ## The founder of Solaris was caught cheating on other projects
 Tiva was recorded using external exploits through a separate backend to log into other servers and cheat. The username visible in the bottom-left corner confirms it is Tiva, and the username includes a racist slur.
 
-![image](https://github.com/user-attachments/assets/b1d264db-e75d-48ab-9261-863c7a2b7d56)
+![446800688-b1d264db-e75d-48ab-9261-863c7a2b7d56](https://github.com/user-attachments/assets/f5f6eeb1-a4f3-42f3-98d1-2ad827568c16)
 #
 (*Proof in Game*)
 #
-![image](https://github.com/user-attachments/assets/013df91c-a2c4-4ade-be4a-e485602dbdbd)
+![446952028-013df91c-a2c4-4ade-be4a-e485602dbdbd](https://github.com/user-attachments/assets/ca40febc-507e-4406-a6a7-e7337030dc7e)
 
 ---
 
 ## The founder of Solaris, Tiva, posted a racist GIF likely intended to discriminate against a Black individual.
 
-![Image](https://github.com/user-attachments/assets/f47d140c-4199-46a2-adc3-f62de3b86ad4)
+![446569531-f47d140c-4199-46a2-adc3-f62de3b86ad4](https://github.com/user-attachments/assets/c0d72e95-f8c2-4c7b-8300-f067ccb3cc0f)
 
 ---
 
