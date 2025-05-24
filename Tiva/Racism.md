@@ -18,17 +18,17 @@ Tiva was recorded using external exploits through a separate backend to log into
 
 ## An image has surfaced showing the founder of Solaris, Tiva, using a racist slur against Black individuals, which was later shared by Ploosh.
 
-![Image](https://github.com/user-attachments/assets/8009a4a0-21d1-4efc-9524-33bebccd3a80)
+![446569835-8009a4a0-21d1-4efc-9524-33bebccd3a80](https://github.com/user-attachments/assets/47a8e8a6-cdd9-40d2-8202-954e03a46869)
 
 ---
 
 ## Tiva shared an image of Sophie Rain that contains a racist slur.
 
-![Image](https://github.com/user-attachments/assets/85e9b4e8-1ebd-4267-b066-3588d0d83b51)
+![446570077-85e9b4e8-1ebd-4267-b066-3588d0d83b51](https://github.com/user-attachments/assets/4f1269b8-54f5-4185-9f97-8cca4c8a404b)
 
 ---
 
 ## Tiva was seen using racist slurs during gameplay.
 Fortnite has an automated system that detects offensive language. It’s not hard to figure out what was said it's clear that he used the N-word.
 
-![Image](https://github.com/user-attachments/assets/de2215ff-4bee-4e9b-86af-b6f69d7ff732)
+![446570447-de2215ff-4bee-4e9b-86af-b6f69d7ff732](https://github.com/user-attachments/assets/7620890b-8372-4bb3-a9ca-020f22f8c6b1)
