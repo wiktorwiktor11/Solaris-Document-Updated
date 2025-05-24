@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/72f5baa3-c299-49f6-8b17-eb30d31dbfea)
+![1500x500](https://github.com/user-attachments/assets/8454d5d6-cacc-445d-b234-af0f2893b3ba)
 > ### Solaris Document
 **Purpose:**
 This document covers serious issues caused by the **Solaris** group, an OG Fortnite community similar to Nova or Era. Solaris has been the source of hate, drama, and harmful behavior toward others. The OG Fortnite community was meant to be a space where people supported each other, but that changed because of their actions.
