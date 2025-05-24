@@ -1,9 +1,7 @@
----
-
 ### Egator used a homophobic slur toward a Solaris team member
 He called Wesley a "fag" using a derogatory and offensive term that is harmful and unacceptable.
 
-![image](https://github.com/user-attachments/assets/64199164-8295-4f64-a1da-d45e51a75d46)
+![446765400-64199164-8295-4f64-a1da-d45e51a75d46](https://github.com/user-attachments/assets/b9dd3bcd-96fb-4fff-8813-8bb24280d8ac)
 
 ---
 
@@ -11,6 +9,4 @@ He called Wesley a "fag" using a derogatory and offensive term that is harmful a
 
 He directed a personal insult that included a homophobic slur, making the comment both offensive and inappropriate.
 
-![image](https://github.com/user-attachments/assets/9a305cdc-aa65-47c2-a85f-5263a1a37fe0)
-
----
+![447274210-9a305cdc-aa65-47c2-a85f-5263a1a37fe0](https://github.com/user-attachments/assets/970a55ef-3afd-4d75-a754-2f741f02b7c1)
